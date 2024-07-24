@@ -4,4 +4,4 @@
 - . Ajudar caso precise.
 - . Instagram @dead_.sttar
 - . Ela/Dela
-- . Sou compositora, poetisa, desenhista, adoro furões e musicas.
+- . Sou compositora, poetisa, desenhista, amo furões, tubarões e musicas.
